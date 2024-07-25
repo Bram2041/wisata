@@ -1,0 +1,2 @@
+# wisata
+peta wisata gunkid
